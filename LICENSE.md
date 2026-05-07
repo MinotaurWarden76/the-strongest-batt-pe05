@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://MinotaurWarden76.github.io/the-strongest-batt-pe05/ ) |
  |---------------------|----------------------:|
 
 
